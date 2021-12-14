@@ -1,4 +1,4 @@
-# SOHEI SHIMOMAI
+# SOHEI SHIMOMAI 下舞創平
 Birth date:	 Dec 23, 1997<br>
 Birthplace：Kumamoto-Japan<br>
 Languages:	Japanese – native, English – sometime<br>
